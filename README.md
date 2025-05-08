@@ -11,7 +11,7 @@ Saya Rafly Putra Santoso NIM 2100846 mengerjakan Tugas Praktikum 9 dalam mata ku
 ![Image](https://github.com/user-attachments/assets/bc2a8030-e2a3-4036-a4e6-8e1bf2dd8fa2)
 ![Image](https://github.com/user-attachments/assets/5e749a44-a744-46bd-a5d0-2bae0ec2c7e3)
 ![Image](https://github.com/user-attachments/assets/b6712fa1-79d9-4e31-b61d-16b98c8b89b0)
-![Image](https://github.com/user-attachments/assets/bc2a8030-e2a3-4036-a4e6-8e1bf2dd8fa2)
+![Image](https://github.com/user-attachments/assets/3b9ba1d5-165e-4d97-b266-41c28b15e3d1)
 
 ## Dokumentasi 
 ada di file atas
